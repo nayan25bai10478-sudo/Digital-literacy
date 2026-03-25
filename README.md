@@ -101,9 +101,9 @@ Created professional profiles on:
 
 ## 🔗 Useful Links
 
-🌐 GitHub Profile: https://github.com/[your-username]  
-💼 LinkedIn: https://linkedin.com/in/[your-profile]  
-📊 Google Form: [Paste your link here]  
+🌐 GitHub Profile: https://github.com/[nayan25bai10478-sudo]  
+💼 LinkedIn: https://linkedin.com/in/[nayanchavhan200708]  
+📊 Google Form: [https://docs.google.com/forms/d/e/1FAIpQLSdd7xfAybTgNl9jmUpnmprOdrw6N_wbPnxw252AJwuVCElUAg/viewform?usp=publish-editor]  
 
 ---
 
